@@ -1,7 +1,7 @@
-### Hi there 👋
+### Hi there 👋 I am 11 and i just love to code. Thats it byeee. Want me to help you? Welp, Join This HUH, https://discord.gg/qTnpRAmVDn
 
 <!--
-**ArmaanTHEGREEAT/ArmaanTHEGREEAT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**ArmaanTHEGREEAT/ArmaanTHEGREEAT** is a ✨ _special_ ✨ repository because its `TEACHING YOU HOW TO MAKE A MUSIC BOT!!Without Coding ofc..` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
